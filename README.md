@@ -1,0 +1,2 @@
+# quizkpssguncelbilgiler
+KPSS GÜNCEL BİLGİLER
